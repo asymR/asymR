@@ -10,4 +10,4 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I enjoy solving coding challenges in my free time and have a collection of vintage computer hardware.
+⚡ Fun fact: I enjoy solving coding challenges in my free time.
